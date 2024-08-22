@@ -1,4 +1,4 @@
 - hey there!,I’m @YASHMITHAPELLI
 - An enthusiast learner..
-- I’m currently pursuing Bachelors degree in COMPUTER ENGINNERING.
+- Graduated in BE Computer Engineering.
 - Personal email-id: mithapelliyash13@gmail.com
